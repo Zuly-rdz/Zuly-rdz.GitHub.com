@@ -1,2 +1,2 @@
-# Zuly-rdz.GitHub.com
+Página oficial de Zuly Rodriguez
 Mi Portafolio
